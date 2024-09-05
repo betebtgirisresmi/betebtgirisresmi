@@ -1,2 +1,2 @@
 BETEBET GİRİŞ ADRESİNE HIZLICA ULAŞ! RESMİ BİLGİ PAYLAŞIM PLATFORMUNDASINIZ. GÜNCEL GİRİŞ BİLGİSİ AŞAĞIDADIR!
-<h1><a href="http://gg.gg/1bz5mh" title="BETEBET GİRİŞ YAP">BETEBET GİRİŞ YAP</a></h1>
+<h1><a href="https://n9.cl/xb92p" title="BETEBET GİRİŞ YAP">BETEBET GİRİŞ YAP</a></h1>
